@@ -1,0 +1,1 @@
+Aktualna verzia
